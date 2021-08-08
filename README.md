@@ -1,9 +1,9 @@
-www.fb.gg/Aishah.FREEFIRE/
+https://www.facebook.com/isab.aishah
 ### Hi there 👋
 
 <!--
 **Aishah-FreeFire/Aishah-FreeFire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+http://facebook.com/Aishah.FREEFIRE-101211628534636
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
