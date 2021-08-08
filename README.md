@@ -1,4 +1,4 @@
-www.fb.gg/Aishah.FREEFIRE/
+www.fb.me/Aishah.FREEFIRE/
 ### Hi there 👋
 
 <!--
